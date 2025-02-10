@@ -6,7 +6,7 @@
 
 1. Tu respuesta: Historia que tú hiciste, historia por hacer, porque nadie resiste, tus ganas de vencer.
 
-2. Tu respuesta:
+2. Tu respuesta: Llevo tu camiseta, Pegada al corazón, Los, días que tú juegas, Son todo lo que soy.
 
 3. Tu respuesta:
 
